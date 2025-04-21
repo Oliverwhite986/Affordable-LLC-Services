@@ -22,19 +22,20 @@ Source: [Trustpilot](https://www.trustpilot.com/users/60a7994e889c8d0019bc8487):
 
 “Milan had a small hiccup; his phone number was already in use, and he needed it sorted fast. Naturally, he thought it would take days to fix (because, let’s be real, that’s usually how it goes). But nope! He got a quick call from support, had a brief chat, and bam—problem solved. He was genuinely impressed with how fast and smooth everything went. Speedy and effective, just like he needed.”
 
-![|594x426](https://lh7-rt.googleusercontent.com/docsz/AD_4nXewbmkSbKRB37yE94Dt6GJgeOSwzWGDVTZftWMxKXeqRBf1YkULuRfALbBmmeLVDrcI14FuO__Je-i6lInxRUsjCbYdmjO0_-HKV2DtvSSlA-pDy05QcEz021iDoHsbArrs4pT0EA?key=lkIhvU8mpK-KAriajZuSZXza)
+![northwest agent review Trustpilot](https://github.com/user-attachments/assets/cd8b3d8c-1094-4637-bd5a-9e99a814f273)
+
 
 Source: [Google](https://www.google.com/maps/contrib/113430082233891816641/place/ChIJD3yPjGYYnlQRrGze0NfaIw0/@40.2702723,-117.2953153,5z/data=!4m6!1m5!8m4!1e1!2s113430082233891816641!3m1!1e1?hl=en-GB&entry=ttu&g_ep=EgoyMDI1MDQwOS4wIKXMDSoASAFQAw%3D%3D):
 
 “I could’ve signed up online with Northwest Registered Agent, but their candid website—especially the About Us—convinced me to call instead. Got Amanda B., a fantastic Corporate Guide. She’s sharp, helpful, funny, and nailed my business registration setup. Awesome experience, she’s a huge asset, and Northwest’s a solid pick for starting a business”
 
-![|591x669](https://lh7-rt.googleusercontent.com/docsz/AD_4nXd96mnTSq049dHeXnQd4IsWJytpUx5T0S0Bvs5FybVPQv054hchf8q75hKno5iCLTSJxfmx8uqHQhpixcpEMh08_ohoG8mDg4XTdiGtxakCRs2PcquR9pna6x87Im-oNkUJtYccDg?key=lkIhvU8mpK-KAriajZuSZXza)
+![Northwest registered agent review Google](https://github.com/user-attachments/assets/f6ce8d01-0901-4c04-9634-4d2e2b5169f6)
 
 Source: [Quora](https://www.quora.com/Who-are-the-cheapest-and-trustworthy-agents-to-form-an-LLC-in-Delaware#:~:text=I%20use%20northwestregisteredagent.com%20as,don't%20sell%20customer's%20infomation%20.):
 
 “I’ve used Northwest Registered Agent as my registered agent for 5 years. They’ve got 20 years of business formation experience and 200+ experts across the US. Their pricing is straightforward, no hidden fees or upsells, and they don’t sell your info. I use their free Delaware business address for my company, with mail forwarding to my home and junk mail trashed. Their annual report service saves me time.”
 
-![|624x485](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfRqLEV2q-PPa0wVksJFV35DiqVSlGCSkD85UUwyBGDiOI69kVCmGEvHniBoY3SkbXncwAkgq_ORBfhi6YcjYpopdiXDwfzKofyzXlgt95PD__CJ2FCWXZhroA2IHHF6tgd6VuiRg?key=lkIhvU8mpK-KAriajZuSZXza)
+![Northwest agent review quora](https://github.com/user-attachments/assets/072f60a3-5bde-4fc2-a3dc-74e0ae97e9e5)
 
 Alright, you heard what others review on Northwest Registered Agent's affordable LLC services.
 
@@ -48,7 +49,7 @@ Northwest Registered Agent was born in 1998, in Spokane, Washington, and decided
 
 Fast forwarding to 2025, Northwest Agent now has 20+ years of experience, helped millions of Limited Liability Companies (LLCs) and businesses to stay compliant and thrive.
 
-[![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfbBlZzX8Kd3c5JCjmXH4GWCmIWJ5aLpx8XsJYQ5w1a2Yod9mjdDYElaUwoy0pKEkx-fMUKLYAJi8R7ux2lVNvocnrgQcVVfk9zrgDYRQxJiVOMxi6JOAWc2cuob0XQJt_YN-BaPA?key=lkIhvU8mpK-KAriajZuSZXza)](https://www.northwestregisteredagent.com/)
+![Get Northwest](https://github.com/user-attachments/assets/3d353737-41fb-4af1-972c-01811d84e1d0)
 
 Northwest has offices across the United States, including all 50 states in the country, with 900+ employees and experts working for you.
 
@@ -130,19 +131,19 @@ Northwest doesn’t stop at the basics. They’ve got some handy extras if you w
 
 An EIN is your business’s Social Security Number, essential for taxes, bank accounts, and hiring employees.
 
-![|624x259](https://lh7-rt.googleusercontent.com/docsz/AD_4nXeGORarSR7CoWj5lyX4pP3_kj20pW5kWRcJGWQlsiYdY2YPvaDb3oGa3cf2X3QLfe62MeM_Lm42EQb_nxjUz1sfm_3hzZ2Yu4ycFCNJ4wMNLYuc5KVYgfC4rI4JzgNLLwNbsy_J?key=lkIhvU8mpK-KAriajZuSZXza)
+![Employer Identification Number](https://github.com/user-attachments/assets/750c1ee6-1093-4318-8f46-4de12e3e3f00)
 
 Northwest grabs it from the IRS for $50 if you’ve got an SSN or ITIN, or $200 if you’re a non-US resident.
 
 Sure, you could do it yourself for free, but who has time to wrestle with IRS forms?
 
-[![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfbBlZzX8Kd3c5JCjmXH4GWCmIWJ5aLpx8XsJYQ5w1a2Yod9mjdDYElaUwoy0pKEkx-fMUKLYAJi8R7ux2lVNvocnrgQcVVfk9zrgDYRQxJiVOMxi6JOAWc2cuob0XQJt_YN-BaPA?key=lkIhvU8mpK-KAriajZuSZXza)](https://www.northwestregisteredagent.com/)
+![Get Northwest](https://github.com/user-attachments/assets/2788f8de-6c3b-415d-adf8-77de11a185d3)
 
 ### 2. Operating Agreements
 
 An Operating Agreement is a legal document that defines an LLC’s structure and management, ownership stakes, member roles, and profit splits.
 
-![|624x936](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfwfr7lxVXPgFpNO6_6JkswiRFSob6VtrQnLXmHWEMEsKaofplxw5iYoEhVay89vQ2CStmFtiH9iSvFD3J3ICBdevRLvtsPnjsGkoPKtmSQxyxMY09f8TsM_16bp76Bau_-WSGLVQ?key=lkIhvU8mpK-KAriajZuSZXza)
+![Operating Agreements](https://github.com/user-attachments/assets/15d3f336-5b71-4157-8da5-b8899e3d988d)
 
 It’s not mandatory in every state, but having one prevents disputes and clarifies decision-making.
 
@@ -311,7 +312,7 @@ Their support team is known for being:
 
 Whether you have questions about filing requirements, compliance deadlines, or tax implications, their team is always available to help.
 
-[![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfbBlZzX8Kd3c5JCjmXH4GWCmIWJ5aLpx8XsJYQ5w1a2Yod9mjdDYElaUwoy0pKEkx-fMUKLYAJi8R7ux2lVNvocnrgQcVVfk9zrgDYRQxJiVOMxi6JOAWc2cuob0XQJt_YN-BaPA?key=lkIhvU8mpK-KAriajZuSZXza)](https://www.northwestregisteredagent.com/)
+![Get Northwest](https://github.com/user-attachments/assets/ad9d1fa5-4c68-4931-9b7d-a869f4225af5)
 
 Unlike some competitors, they don’t just process your documents and disappear, they provide ongoing support whenever you need it.
 
@@ -325,7 +326,7 @@ It is a perfect option for those who are looking for a reliable, private, and tr
 
 Their straightforward pricing, excellent support, and privacy-first approach make them a great choice for new business owners.
 
-[![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfbBlZzX8Kd3c5JCjmXH4GWCmIWJ5aLpx8XsJYQ5w1a2Yod9mjdDYElaUwoy0pKEkx-fMUKLYAJi8R7ux2lVNvocnrgQcVVfk9zrgDYRQxJiVOMxi6JOAWc2cuob0XQJt_YN-BaPA?key=lkIhvU8mpK-KAriajZuSZXza)](https://www.northwestregisteredagent.com/)
+![Get Northwest](https://github.com/user-attachments/assets/6d57a638-3b55-419e-a62d-49d96c602da2)
 
 So, go ahead, form that LLC, protect your privacy, and sleep easy knowing Northwest’s got your back. What’s stopping you?
 
