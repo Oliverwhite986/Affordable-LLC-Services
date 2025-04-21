@@ -25,9 +25,9 @@ The ZenBusiness discount offers several features, such as:
 * 👉 Banking & Bookkeeping: Offers business bank accounts and bookkeeping tools to manage finances efficiently.
 * 👉 Online Presence: Provides custom domains, websites, and hosting to establish your digital footprint.
 
-## ZenBusiness Discounts | Get 20% Off on Pro Plan
+## ZenBusiness Discounts | Get 10% Off on Pro Plan
 
-Claim [20% off](https://www.awin1.com/cread.php?awinmid=102801&awinaffid=1602020&ued=https%3A%2F%2Fwww.zenbusiness.com%2Fzenbusiness-llc-service-discount%2F) on the pro plan using this ZenBusiness discount code, and streamline your LLC registration process.
+Claim [10% off](https://www.awin1.com/cread.php?awinmid=102801&awinaffid=1602020&ued=https%3A%2F%2Fwww.zenbusiness.com%2Fzenbusiness-llc-service-discount%2F) on the pro plan using this ZenBusiness discount code, and streamline your LLC registration process.
 
 [![ZenBusiness 20% off promo code](https://github.com/user-attachments/assets/0820a507-5c62-4994-ae49-dd82c908a140)](https://www.awin1.com/cread.php?awinmid=102801&awinaffid=1602020&ued=https%3A%2F%2Fwww.zenbusiness.com%2Fzenbusiness-llc-service-discount%2F)
 
